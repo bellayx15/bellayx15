@@ -15,5 +15,4 @@ Como objetivo pra vida penso em algo relacionado a história ou português.
 Tecnologias que estou aprendendo 💻: Git, github, veritas, figma, word, visualg, canva, entre muitas outras.
 
 --- 
-<img width="977" height="627" alt="image" src="https://github.com/user-attachments/assets/6e2c1f3a-f323-44c4-bb26-44b7f47f360e" />
-
+<img width="1083" height="583" alt="image" src="https://github.com/user-attachments/assets/bca71bd6-6d42-4384-867b-b2002fd3f6fa" />
