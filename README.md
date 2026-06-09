@@ -1,5 +1,5 @@
+<img width="1163" height="597" alt="image" src="https://github.com/user-attachments/assets/9a5b411e-ed33-4c9b-82bd-da8d7034cb87" />
 
-<img width="433" height="262" alt="image" src="https://github.com/user-attachments/assets/3764087d-2f4c-4a49-9431-0e9d5224e46f" />
 
 ---
 Oii meu nome é Isabella 🎼
