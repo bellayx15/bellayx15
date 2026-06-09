@@ -1,3 +1,7 @@
+<img width="490" height="270" alt="image" src="https://github.com/user-attachments/assets/ba0d3eda-70aa-480a-9a39-a2ceeca72a61" />
+
+
+---
 Oii meu nome é Isabella 🎼
 📌 Belo Horizonte- Minas Gerais
 Tenho 15 anos e estudo muitas coisas interessantes no curso tecnico (como gits, hardawres, algvoritimos..).
