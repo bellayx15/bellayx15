@@ -1,4 +1,4 @@
-<img width="490" height="270" alt="image" src="https://github.com/user-attachments/assets/ba0d3eda-70aa-480a-9a39-a2ceeca72a61" />
+https://pin.it/6kKhZKgYO
 
 
 ---
@@ -15,3 +15,4 @@ Como objetivo pra vida penso em algo relacionado a história ou português.
 Tecnologias que estou aprendendo 💻: Git, github, veritas, figma, word, visualg, canva, entre muitas outras.
 
 --- 
+https://pin.it/6nwMdqnbm
